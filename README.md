@@ -16,8 +16,8 @@
 
 ## 🔗 Media Sosial & Kontak
 
-- Email: [your_email@example.com](mailto:your_email@example.com)
-- LinkedIn: [linkedin.com/in/syaheka](https://linkedin.com/in/syaheka)
+- Email: [feralan333@gmail.com](mailto:feralan333@gmail.com)
+- LinkedIn: [linkedin.com/in/alanfer](https://linkedin.com/in/alanfer)
 
 ---
 
